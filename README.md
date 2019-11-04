@@ -1,2 +1,1 @@
-# angelmagbanua97@gmail.com
-Gmail
+angelmagbanua97@gmail.com
